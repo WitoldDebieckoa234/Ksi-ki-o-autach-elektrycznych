@@ -1,1 +1,2 @@
 # Ksi-ki-o-autach-elektrycznych
+Ten akumulator może dowieść Auto Elektryczne do 2500 km. Ten akumulator ładuje się od paneli słonecznych do 1 godziny lub 30 minut na szybkiej ładowarce przy małym aperażu ma dużo energii i pobiera mało z sieci nie ma on rezystancji elektrycznej więc nie gubi energii. Ten akumulator jest do ciężkich warunków pogodowych. Ten akumulator też szybko się ładuje od ogniw paliwowych i paneli słonecznych z sieci ładuje się co w innym zdaniu pisałem wcześniej. 
